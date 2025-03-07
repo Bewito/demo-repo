@@ -8,16 +8,16 @@
 
 ---
 
-### Rendibú Mall Plaza Oeste  
-🆓 Una bebida gratis en Rendibú (tamaño normal).  
-
----
-
 ## 📍 Maipú
 
 ### Cerogrado  
 🕒 1 hora de patinaje gratis ($10.000)  
 📍 **Dirección:** Américo Vespucio 399  
+
+---
+
+### Rendibú Mall Plaza Oeste  
+🆓 Una bebida gratis en Rendibú (tamaño normal).  
 
 ---
 
