@@ -8,6 +8,11 @@
 
 ---
 
+### Rendibú Mall Plaza Oeste  
+🆓 Una bebida gratis en Rendibú (tamaño normal).  
+
+---
+
 ## 📍 Maipú
 
 ### Cerogrado  
@@ -16,10 +21,6 @@
 
 ---
 
-### Rendibú Mall Plaza Oeste  
-🆓 Una bebida gratis en Rendibú (tamaño normal).  
-
----
 
 ## 📍 Providencia
 
