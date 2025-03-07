@@ -8,7 +8,7 @@
 
 ---
 
-### Rendibú Mall Plaza Oeste  
+### Rendibú Mall Plaza Vespucio
 🆓 Una bebida gratis en Rendibú (tamaño normal).  
 
 ---
